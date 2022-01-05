@@ -1,0 +1,4 @@
+baseURL = 'https://secondhandsmartguy.github.io'
+languageCode = 'en-us'
+title = 'SecondHandSmartGuy Thoughts'
+theme="beautifulhugo"

@@ -1,0 +1,7 @@
+[submodule "secondhandsmartguyblog/themes/beautifulhugo"]
+	path = secondhandsmartguyblog/themes/beautifulhugo
+	url = https://github.com/halogenica/beautifulhugo.git
+[submodule "secondhandsmartguyblog/public"]
+	path = secondhandsmartguyblog/public
+	url = https://github.com/secondhandsmartguy/secondhandsmartguy.github.io.git
+	branch = main
