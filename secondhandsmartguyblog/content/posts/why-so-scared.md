@@ -1,0 +1,51 @@
+---
+title: "Why So Scared?"
+date: 2022-01-27T09:38:16+01:00
+---
+
+I can already see that this post is going to be very long since I don't really have it compiled in my head completely, but I want to talk about what follows, so thank you for choosing to fly Damad Bullshit Airlines, strap in, there's going to be some turbulence.
+
+I've talked about science a lot lately. What I'm about to do in this post has no science behind it, at least not that I know of. This isn't even me trying to teach someone something. It's me having a public discussion with myself, so whenever it seems that I'm forcing an opinion on you, or I'm acting like a smartass, just know that all I'm doing is sharing my opinion. I can be wrong on all of this, and if you disagree, that is completely fine. This is just my analysis with a pinch of my opinion. 
+
+As I've said in my annual letter, I've seen a lot of relationships fail in the past year. I've also seen a lot of relationships start, and some even be saved. I'll try to summarize what I've learned from observing all of that. I'll be the first to admit that I'm not very good with human relationships. I like being alone. Sometimes people seem to think it borders on a disorder. I don't know, maybe it is, but I like being alone, and I don't just mean single. There is something very enjoyable for me when there is no one around. This doesn't mean I don't like people by any means. I do. Some of them I even love (I'm sure you've run into feeling this too). I try to be open to help everyone, but the number of people I like being around for no reason is very small. I'd much rather spend a night reading a book, watching a movie or playing video games than go out to a party. All that being said, I don't see myself as a lone cowboy living with a dog. While that idea sounds bitchin' for like a year or two in my mid 20s, I don't think I'd be a happy camper at 40. 
+
+First, I'd like to talk about some of the things that people might assume reading the first part. Number one, I'm not complaining. I'm single and I love it. I'm very happy. Number two, I'm not scared of being alone, I'm just facing the realistic fact that humans are not made to be alone and by a large margin, most people end up with one partner. But.. Why is it that most of them seem miserable? You have about a 50-50 chance of your marriage being successful, and that doesn't take into account that marriage as a concept has a lot of connections to the spiritual world and religions, and that, in many, even modern cultures, divorce is a very frowned upon concept. If society normalized the divorce completely, who knows how many marriages would actually survive. 
+
+How do I know they're miserable? Well.. I don't. But why is it then that we're so heart melted when we see an older couple act in love. If the concept of a single partner worked, doesn't it mean that it should be normal to be happily in love even after being together for who knows how long? 
+
+Let me tell you right now, this isn't a post about me supporting polygamy. I don't mind it if you can live it, but I'm not that advanced (insert uncomfortable laughter). 
+
+I do believe that monogamy is not only possible, but can be achieved by many people. One could argue many things here, like love being only a chemical reaction (I think there is more philosophy to this, but if you want to believe this, that's ok, keep doing it, but this isn't a post targeted at you). However, here's my problem. Romance has been way too romanticized. Movies and songs have made us believe that somehow, somewhere, we will meet this amazing person cut out exactly for us, and it's going to be so effortless to be happy, we will never argue anything, we will just dance as some romantic song from 1940s is playing in the background and we're slowly swaying into the night. Yeah.. no. 
+
+I like some Bryan Adams songs, but come on. "Take me as I am, take my life. I would give it all, I would sacrifice." ((Everything I Do) I Do It For You by Bryan Adams). I will bet you any money you want that when you heard this song at least a small part of you went: "Ou, that's what I want.". Well.. You, me, and Bryan need to get our heads out of our asses. That's very much not how it works. Maybe one in who knows how many relationships can work like this, but for the majority of us mortals, no. 
+
+Let's break this down, shall we?
+
+ "Take me as I am."? Please don't. If I ever meet a girl that thinks I'm a perfect person, I'm calling the professionals because she needs help in a mental institution. I'm not shading myself. If you think you're perfect, you have officially lost your mind. 
+
+"Take my life."? Yeah, no, I like my life. I'd be happy to share it with someone, but I'm not letting anyone take it away. 
+
+"I would give it all"? Nope. Not all. Never. I'd give my best, but if I gave it all, then I know I'd be miserable and do you want to guess how that would work out?
+
+"I would sacrifice"? Sure, as long as that person is also willing to do so. And in normal amounts. I'm not changing absolutely everything about myself just to accommodate my partner. If you're willing to do this you need help, but you first need a good, hard, look at yourself. 
+
+I've mentioned my smart friend previously. He asked me one question when I told him that this whole shenanigans with a girl I knew was over. "Are you ever going to be ready to compromise?". I see how it may seem that I'm unwilling to do that from my previous statements. But I'm actually very open to doing so. The point is that I want to compromise, I don't want to be the only one doing the change to accommodate the relationship.
+
+But wait... If I don't want to change for a partner, and I also don't want to be taken as I am, what in the living fuck do I want? Just because I like my life, doesn't mean I can't like it even more. Pancakes with chocolate are amazing, but add, specifically, Nutella to it, and you're experiencing something out of this world (If you're one of those that think Nutella is overrated, you're wrong, and you will be eliminated once I take power). That's the point. I'm open to change, but I don't want to make that change to accommodate someone. I want to make it because it will genuinely make me a better person to be around, a better partner, more loving partner. How to know if the change you're making is because you're trying to advance or it's just because you want your partner to like you more? Ask yourself a simple question, and before answering perform the removal of yourself from your rectal cavity, and swallow your own damn bullshit. Question is: Would I, at any point, be willing to do this if I were single? 
+
+There are two examples in my life of people actually doing this, probably not even knowing they did this. First example is my parents. They went through many hardships together because they adapted but they never changed who they are individually. My mom is a very loving, empathetic and impulsive person. My father is quite an eccentric, phlegmatic and funny person. Those are just three words that first popped into my mind. I was just way too lucky with the parents part. I could sit down and write for days what makes them amazing, but that's not the point of this post. 
+
+Another example is the aforementioned smart friend and his lovely wife, who's also one of my closest friends. I've seen them evolve over the years and progress from high school sweethearts to a wife and husband that I can only look up to. She's a very extroverted, warm, energetic person that shines positivity everywhere she goes. He's my fellow introvert, a very quiet, loving person that you couldn't hate even if you tried your best. They were always like that. Their core personalities never changed. 
+
+I wish you all to have a couple of couples like this around you just so you can learn what it means to have a pure, undefined feeling of love radiate around you. But more so, I wish you all to find this for yourself.
+
+Now, both of these examples are people that have never changed their core personality to accommodate their partner, but I've seen the evolution of both of the examples over the years. I've seen my parents become better parents, better partners, warmer friends. I often tell them that because of them I can't even make mistakes because they're so respected that if I did that, I'd tarnish what they've built. It's a joke, they never put any pressure on me. 
+
+I've also seen my friends evolve to be the people that absolutely everyone wants around, because when they're together, it's the only version of them better than when they're alone (just to make sure, since I confused myself with the last sentence, and I wanna beat the point to the ground, two of them are incredible people on their own that evolved to that point by being with the other person, but not because they're with another person). 
+
+I hope my point is made, but if it's not, I'll try to summarize it. If you want to be in a happy relationship, you have to be willing to compromise, communicate and change. But you need to do it for the right reasons. Being alone but happy should always be considered better than being with someone to fill the quota, but feeling miserable. Prioritize your own happiness. Only that way, once you find that person, you will be able to be happier, because you'll know what you're aiming at. Once you figure out how to make yourself happy, it's a breeze to improve on that. Never expect that the other person will do it for you. We make ourselves happy. No one else can do that. If you think your partner can do it, you're putting an unrealistic expectation on them that will result in not only the relationship failing, because no one can stand up to that kind of challenge, but will also result in you being even more miserable. You don't have to be 100% happy for this either. But you have to be willing to achieve that with or without that person. This whole thing is a mash of my thoughts and opinions on this. As I've said, maybe I'm wrong, maybe none of this is true, but I'm willing to try it this way. So don't be scared of being alone. Don't be scared to go and be happy by yourself. Whatever it takes.
+
+Sincerely yours,
+
+Damad Butkovic
+
